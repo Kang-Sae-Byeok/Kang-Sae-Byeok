@@ -12,4 +12,4 @@
 　　　　　　　　　　　　　THE!!!!!! niragi fan please ask me about him ill cry tears of joy
 								 　　
 
-　　　　　　　　　　　　　　　　　　　　　　　돈, 권력 명예? 뭐든
+　　　　　　　　　　　　　　　　　　　　　　돈, 권력 명예? 뭐든
