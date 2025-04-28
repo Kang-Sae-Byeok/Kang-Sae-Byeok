@@ -1,7 +1,7 @@
 　　　　　　　　　　　　　　　　　　　　　원하는 걸 말해봐 전부
 　　
 			 
-　　　　　　　　　　　　𝐒ae - 𝐁yeok　　𝐎samu　　　　𝟏𝟔yo　𝐇𝐂 - DID sys　　< my oomfs 3
+　　　　　　　　　　　　𝐒ae - 𝐁yeok　　𝐎samu　　　　𝟏𝟔yo　𝐇𝐂 - DID sys　　< boyf , oomfs 3
 								
 　　　　　　　　prnscc/bxngtxn　4　more　　　𝐼𝑅𝐿　angel　𓈒　　　　𝐂　+　𝐇　welcome
 
