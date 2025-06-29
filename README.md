@@ -3,7 +3,7 @@
 			 
 　　　　　　　　　　　　𝐒ae - 𝐁yeok　　𝐎samu　　　　𝟏𝟔yo　𝐇𝐂 - DID sys　　< oomfs 3
 								
-　　　　　　　　prnscc/bxngtxn　4　more　　　𝐼𝑅𝐿　angel　𓈒　　　　𝐂　+　𝐇　welcome
+　　　　　　　　prnscc/fort　4　more　　　𝐼𝑅𝐿　angel　𓈒　　　　𝐂　+　𝐇　welcome
 
 　　　　　　　　　　　　　𝑫azai　　𝑺u - 𝒀eol　　𝑪hishiya　　𝑵iragi　　etc　　　𝐈𝐑𝐋
 
